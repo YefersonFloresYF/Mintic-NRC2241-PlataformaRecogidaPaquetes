@@ -1,0 +1,1 @@
+# Mintic-NRC2241-PlataformaRecogidaPaquetes
